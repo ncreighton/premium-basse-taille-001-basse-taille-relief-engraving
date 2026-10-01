@@ -1,0 +1,2 @@
+# premium-basse-taille-001-basse-taille-relief-engraving
+Professional heritage-enamelwork Notion template — without the professional price tag.  Pre-built databases, views, and formula fields — ready to duplicate and use. Mobile-optimized for Notion iOS and Android — works everywhere you work.  ## What's Included  - Basse-Taille Relief Engraving &amp; Translucent Fill Log — fully configured and ready to use
